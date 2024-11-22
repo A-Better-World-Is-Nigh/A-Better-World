@@ -1,0 +1,7 @@
+[The Last Farm](https://substack.com/@thelastfarm) describes Library Socialism as the ["Real Solution to Inflation"](https://substack.com/home/post/p-141578076), rightly bringing attention to the fact that public goods are not as subject to the whims of the economy as things we buy. The price of books, does not in fact, increase at the library. 
+
+Library socialism is perhaps best utilized as a kind of "dual power" that allows us to survive and thrive outside of the direct supervision of the state and the economy. By focusing on community-oriented participatory collective ownership, we allow ourselves to be less impacted by what we have, what we buy. Instead, something like a table saw is useful for many on a scale of months, if not years, but could be valuable to an entire community as frequently as daily.
+
+Something distinct about library socialism is it does not command we give up all of our material possessions, something I'm sure most socialists would laugh at anyway. Instead, it focuses on the interplay between what I own, and what we own. 
+
+Ideas for what we can do as library socialism are as varied as can be. Perhaps we have [[Municipal Gardens]], growing foods and raising black soldier flies for composting. We can have [[Tool Libraries]], a collectively pooled resource of items necessary to build things. Maybe this [[Tool Libraries|Tool Library]] exists inside of a [[Maker Spaces|Maker Space]]. 
